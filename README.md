@@ -1,5 +1,5 @@
 # 💫 About Me:
-<br>I’m a software developer <br>
+<br>PRIYADARSHINI KL <br>
 
 
 ## 🌐 Socials:
