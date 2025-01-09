@@ -1,5 +1,7 @@
 # 💫 About Me:
-<br>PRIYADARSHINI KL <br>
+<br>🌿PRIYADARSHINI KL
+    👩‍🦰I'm currently learing DevOps and Java full stack development.
+    </br>
 
 
 ## 🌐 Socials:
